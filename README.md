@@ -1,2 +1,1 @@
-# Game-Project-GRP-
-Make a Project for midterm for the BSIT A2  
+https://youtu.be/zHYkcJyE52g
